@@ -24,9 +24,9 @@ Além das tradicionais categorias e tags, nós organizamos os conteúdos em arti
 ## Conheça a enciclopégia Teológico
 
 - [Site](https://teologico.club/)
-- [Facebook](#)
-- [Instagram](#)
-- [Twitter](#)
-- [Threads](#)
-- [LinkedIn](#)
-- [Pinterest](#)
+- [Facebook](https://www.facebook.com/people/Teol%C3%B3gico-B%C3%ADblia-Teologia/61554193301459/)
+- [Instagram](https://www.instagram.com/teologico_club/)
+- [Twitter](https://x.com/teologico_club)
+- [Threads](https://www.threads.com/@teologico_club)
+- [LinkedIn](https://www.linkedin.com/company/teologico-club/)
+- [Pinterest](https://br.pinterest.com/teologico_club/)
