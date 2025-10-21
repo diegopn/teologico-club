@@ -21,7 +21,7 @@ Além das tradicionais categorias e tags, nós organizamos os conteúdos em arti
 - [**Siglas e Breviações Bíblicas**](https://teologico.club/siglas-e-abreviacoes-biblicas/): Um guia sobre as siglas e abreviações bíblicas;
 - [**Termos Teológicos**](https://teologico.club/termos-teologicos/): Nele disponibilizamos uma série de termos relacionados ao mundo da teologia, como [apostasia](https://teologico.club/termos-teologicos/apostasia/) e [teofania](https://teologico.club/termos-teologicos/teofania/);
 
-## Conheça a enciclopégia Teológico
+## Conheça a enciclopédia Teológico
 
 - [Site](https://teologico.club/)
 - [Facebook](https://www.facebook.com/people/Teol%C3%B3gico-B%C3%ADblia-Teologia/61554193301459/)
